@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Egorka
+- 👋 Hi, I’m poroSad
 - 👀 I’m interested in finding girlfriend
 - 🌱 I’m currently learning how to comunicate with people
 - 💞️ I’m looking to collaborate on anything, but u must be a girl
